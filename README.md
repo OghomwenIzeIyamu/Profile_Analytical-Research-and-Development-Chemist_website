@@ -1,1 +1,2 @@
 # Profile_Analytical-Research-and-Development-Chemist_website
+Analytical/ Research and Development Chemist with over 10 years experience in quantitative and qualitative anlysis, QC and QA. Develops solutions for clean water, healthcare, and green technologies. Adept in Data Analytics, Data Science, Artificial Intelligence and Machine Learning. A published researcher and collaborator, advancing scientific knowledge.
